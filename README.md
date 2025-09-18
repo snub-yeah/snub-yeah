@@ -1,5 +1,5 @@
-# programming and cybersecurity student
-![Meow from Space Dandy](https://i.pinimg.com/originals/c8/27/31/c82731249861cd2ae8b0b16ed132e174.gif)
+# programmer
+![Toshiro Hijikata](https://i.pinimg.com/originals/da/4d/77/da4d77f82eba93b0154ff0b77b2b33f7.gif)
 
 ## [visit my site \(snub.lol\)](https://snub.lol)
 
