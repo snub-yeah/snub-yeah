@@ -1,5 +1,4 @@
-# programmer
-![Toshiro Hijikata](https://i.pinimg.com/originals/da/4d/77/da4d77f82eba93b0154ff0b77b2b33f7.gif)
+![Misaki Nakahara](https://media1.tenor.com/m/xBfIUzRBC1AAAAAC/welcome-to-the-nhk-misaki.gif)
 
 ## [visit my site \(snub.lol\)](https://snub.lol)
 
