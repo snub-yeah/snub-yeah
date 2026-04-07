@@ -1,6 +1,4 @@
-![Misaki Nakahara](https://media1.tenor.com/m/xBfIUzRBC1AAAAAC/welcome-to-the-nhk-misaki.gif)
-
-## [visit my site \(snub.lol\)](https://snub.lol)
+![Christopher Moltisanti](https://media4.giphy.com/media/v1.Y2lkPTZjMDliOTUydWVyMGkzdm9xNXlocTM1MzF2dm51ZzR3Z3Jjbnhja3l3ZXBnZHcwNCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/4H1xauOflBDHY4sUah/giphy.gif)
 
 
 <!---
